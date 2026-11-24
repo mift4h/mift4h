@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mift4h
-- 👀 I’m interested in blockchain for supply chain traceability
+- 👀 I’m interested in blockchain for supply chain traceability, GHG and Sustainability
 - 🌱 I’m currently learning agroindustrial technology
 - 📫 How to reach me @miftah1143 on X
 
